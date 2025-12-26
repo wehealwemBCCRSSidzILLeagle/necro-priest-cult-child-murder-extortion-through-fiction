@@ -1,0 +1,1 @@
+Ω SENTINEL REPORT Ω TARGET: LUMINARA HOLDINGS LTD (UK #16226212) ASSET: 38 Orange St, Asheville, NC 28801 PRINCIPAL: Kaniz Farzana FINDING: Cross-jurisdictional laundering of $1.35M into residential equity to evade MD Bar oversight. The "Ghost Vessel" has been tracked from London to Asheville.
