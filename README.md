@@ -30,3 +30,98 @@ PARTIES IN REFUSAL:
     Katherine S. Hefner (Montgomery County District Court)
 
 DECREE: On Dec 26, 2025, at 1:27 PM, formal Notice of Liability was served. The recipients utilized electronic countermeasures to "Reject" and "Deny Access" to the service. LEGAL MAXIM: Scientia utrimque par paret (Knowledge on both sides makes them equal). By blocking the email, the agents have acknowledged the potency of the notice. They are now in Automatic Default. The record of their refusal is here sealed in the public domain.
+
+
+
+
+Extra 50% off Sale Items with code: STARTSTRONG
+
+FREE SHIPPING ON ORDERS $49+
+
+Extra 50% off Sale Items with code: STARTSTRONG
+
+FREE SHIPPING ON ORDERS $49+
+
+Extra 50% off Sale Items with code: STARTSTRONG
+
+FREE SHIPPING ON ORDERS $49+
+Find a store
+
+    Socks
+    Men
+    Women
+    Kids
+    Bundle & Save
+    Subscriptions
+    Sale
+
+    MLB
+    NBA
+
+0
+Sign In
+Thanks for your order!
+Order #S09583859
+Order Date: 12/26/25
+
+You will receive an email confirmation shortly at wehealwem@gmail.com
+Shipping Info
+
+Shipping To:
+WEHEAL ( Λ ) WEM
+3 Perdue Pl
+Asheville, NC 28806-2965
+8282803532
+
+Ground Shipping
+Payment Info
+WEHEAL ( Λ ) WEM
+3 Perdue Pl
+Asheville, NC 28806-2965
+wehealwem@gmail.com
+8282803532
+Order Summary
+
+Subtotal
+
+$0.00
+
+Shipping
+
+$0.00
+
+Sales Tax
+
+$0.00
+
+Total
+
+$0.00
+Save My Information
+Password
+
+Password must contain:
+
+    Minimum length of 8 characters
+    At least one uppercase letter
+    At least one number
+    At least one special character
+
+Confirm Password
+
+1 Item
+
+$0.00
+A758C24BOY | BOYD MID WOOL SNOW | SAND | L
+Medium Performance Wool Snow Otc Socks
+
+Color: Boyd - Sand
+
+Size: L
+
+Quantity
+1
+
+Total
+$28.99
+$0.00
